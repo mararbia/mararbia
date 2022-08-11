@@ -2,7 +2,7 @@
 
 <br/>
 
-I'm a recent graduate of the Systems Analysis and Development course at the Federal Institute of Education, Science and Technology of the Triângulo Mineiro - IFTM and I'm looking for my first job.
+I am a recent graduate of the Systems Analysis and Development course at the Federal Institute of Education, Science and Technology of the Triângulo Mineiro - IFTM and I am looking for a job.
 
 <br/>
 
